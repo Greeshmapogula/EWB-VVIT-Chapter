@@ -6,4 +6,4 @@ I am currently working as President for this chapter.This repository  is created
 *Chapter Inauguaration link* : https://youtu.be/x8dRAKhGrTg
 *Chapter website link*: www.ewb.vvitguntur.com
 
-                                               ****** **Engineering is for Doing,not just for Studying** ******
+                            ****** Engineering is for Doing,not just for Studying ******
